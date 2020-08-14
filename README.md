@@ -2,4 +2,4 @@
 
 Collab:
 Talia Campbell 
-Hailey Wong
+& Hailey Wong
